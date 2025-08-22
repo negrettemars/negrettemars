@@ -6,5 +6,4 @@
 
 👯 I’m looking to collaborate on: early-stage GTM projects, startup growth experiments, community building, and product launches.
 💬 Ask me about: GTM strategy, organic growth, community, or how to turn ideas into results.
-📫 How to reach me: [LinkedIn]([https://www.linkedin.com/in/marsnegrette/) 
 <3 My happy place is a coffee shop with a latte, a medialuna, and jazz music playing ☕🎶
